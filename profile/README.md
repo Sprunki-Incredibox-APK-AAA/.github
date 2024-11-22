@@ -2,7 +2,7 @@
 
 Sprunki Incredibox apk revolutionizes the music creation experience by transforming complex music production into an engaging, visual adventure. This innovative platform stands out by combining intuitive music-making mechanics with charming animated characters, making it accessible to everyone from complete beginners to experienced musicians. The game's unique approach allows players to experiment with different musical elements while watching their compositions come to life through animated performers.
 
-<a href="https://apkpure.com/sprunki-incredibox/com.sprunki.android?utm_source=github" target="_blank">Click to Download Sprunki Incredibox APK</a>
+<a href="https://upload.app/download/sprunki-incredibox/com.sprunki.android/4fdd6e43d2bf30acc2433d5932bda14bf8f05950742f666b3c95e968c97e0112?utm_source=github" target="_blank">Click to Download Sprunki Incredibox APK</a>
 
 <img src="https://image.winudf.com/v2/user/admin/YWRtaW5fMTcyNzE2MDM0OF8xLnBuZ18xNzMyMDA4MzQzMTM2/screen-0.webp?h=300&fakeurl=1&type=.webp" alt="Sprunki Incredibox apk" title="Sprunki Incredibox apk" style="max-width: 100%;">
 
